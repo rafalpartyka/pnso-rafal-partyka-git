@@ -1,0 +1,1 @@
+# pnso-rafal-partyka-git
